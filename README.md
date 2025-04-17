@@ -4,7 +4,7 @@
 - 💞️ Not looking to collaborate since I don't really know how this works yet
 - 📫 I don't know if I want anyone to contact me, really, but I'll add something later if I can find something that fulfills the need
 - 😄 Pronouns: no thank you
-- ⚡ Fun fact: My name comes from obscure song lyrics, so better to put it here than risk any misinterpretation:  "Look at how fast I can juggle antelopes / Look at how wise I am and how mature / Here in the dark black void, I am moving little shapes / Piling high, so high / Casting shadows on the rest of you" -Ballad of the Monkeys, by JMo of Mantits
+- ⚡ Fun fact: My name comes from obscure song lyrics ("Ballad of the Monkeys", by JMo of Mantits), so better to put it here than risk any misinterpretation:  "Look at how fast I can juggle antelopes / Look at how wise I am and how mature / Here in the dark black void, I am moving little shapes / Piling high, so high / Casting shadows on the rest of you"
 
 
 <!---
