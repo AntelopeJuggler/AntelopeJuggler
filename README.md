@@ -1,4 +1,4 @@
-Hello, anyone and no one. I am the antelope juggler (bonus points to anyone who gets that reference, which will be none of you).
+Hello, anyone and no one. I am (as are we all) the antelope juggler (bonus points to anyone who gets that reference, which will be none of you).
 
 My real name is Simone, I'm a computer science major at the University of Missouri - Columbia, and I wish I had more time to make stuff and fix all the god-awful code you'll find here.
 
